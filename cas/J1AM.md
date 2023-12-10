@@ -1,0 +1,11 @@
+# TLDR
+Le document relate l'histoire d'un doctorant qui, après avoir été devancé dans sa recherche, réévalue ses aspirations. Passionné par la communication scientifique, il décide de poursuivre son doctorat tout en développant ses compétences en communication. Malgré les obstacles, il termine son doctorat et envisage désormais une carrière épanouissante dans la communication scientifique.
+
+# RESUME
+Le narrateur, un doctorant au troisième année de son programme, reçoit une nouvelle décourageante de son directeur de thèse selon laquelle son projet de recherche a été devancé par un autre chercheur. Cette nouvelle le laisse dévasté, remettant en question la validité de son doctorat et s'il devrait abandonner son programme. Cherchant des conseils, il consulte diverses personnes, mais réalise finalement que la décision lui revient.
+
+Inspiré par la philosophie de Marie Kondo, le narrateur commence à rechercher ce qui le rend vraiment heureux. Il se souvient de sa passion pour la communication scientifique, depuis sa fascination pour les nuages en quatrième année jusqu'à sa décision de poursuivre la biologie moléculaire après avoir regardé le film Twilight. Il se rend compte que son véritable bonheur réside dans l'inspiration du public à propos de la science.
+
+Malgré l'absence de projet de recherche clair, le narrateur décide de terminer son doctorat, bien que cela puisse nécessiter de recommencer à zéro. Il prend des mesures pour explorer la communication scientifique, rejoignant le journal de l'université, suivant des cours et des programmes de certification en ligne, et effectuant un stage en communication scientifique. Son directeur de thèse, initialement réticent, devient finalement son plus grand soutien.
+
+Deux ans après avoir été devancé, le narrateur a ajusté son projet de recherche, réduit sa portée et obtenu des résultats prometteurs. Il s'apprête à terminer son doctorat avec l'intention de poursuivre une carrière dans la communication scientifique. L'expérience l'a amené à réfléchir sur ses aspirations et à découvrir une nouvelle voie vers un avenir plus radieux.
